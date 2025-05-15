@@ -1,2 +1,2 @@
 # Smu
-something about race during my college life
+something about competition during my college life
